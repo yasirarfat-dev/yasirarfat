@@ -1,4 +1,4 @@
-* 👋 Hi, I’m: @YasirArfat [@YasirArfat](https://yasirarfat.com)
+* 👋 Hi, I’m: [@YasirArfat](https://yasirarfat.com)
 * 👀 I’m interested in: EVERYTHING.
 * 🌱 I’m currently learning: VOILÀ — accepting myself as I am.
 * 💞️ I’m looking to collaborate on: Building apps that make life easier.
